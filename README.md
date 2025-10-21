@@ -1,0 +1,1 @@
+mano aparentemente vai ter outra parada aqui.
